@@ -1,0 +1,2 @@
+# premium-quarter-badge-001-quarter-badge-maritime-panel-d
+Tired of forgetting which quarterly badges you've earned? The Quarter Badge Maritime Panel Design Log turns your achievements into a captain's log — a visually organized panel that tracks every badge, from idea to completion.  This Notion template solves the chaos of scattered badge tracking by providing a dedicated, maritime-themed panel log. With
